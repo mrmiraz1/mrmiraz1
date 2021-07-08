@@ -1,4 +1,4 @@
-### Hi I am Mira 👋
+### Hi I am Miraz 👋
 
 
 
